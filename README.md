@@ -1,5 +1,4 @@
-## Hi, I'm Fernanda, but you can call me Fer✨. 
-## I'm a systems engineering student😎. 
+## Hi, I'm Fernanda, but you can call me Fer✨. I'm a systems engineering student😎. 
 ## Don't forget that today's effort is tomorrow's success🙌🏻.
 
 <!--
