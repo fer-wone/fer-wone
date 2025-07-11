@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi, I'm Fernanda, but you can call me Fer✨. I'm a systems engineering student😎. Don't forget that today's effort is tomorrow's success🙌🏻.
 
 <!--
 **fer-wone/fer-wone** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
